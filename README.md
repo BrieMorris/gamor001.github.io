@@ -1,1 +1,1 @@
-# gamor001.github.i0
+# gamor001.github.io
